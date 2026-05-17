@@ -1,2 +1,2 @@
-я думаю ты увидел достаточно и тебе стоит остановится z cthmtpyj? yf xnj nf nhfnbim cdjt dhtvz
-XOR не знаю что это
+fl4g:
+TATEgVN4wfH6u+a/lBqY6QBbKOCQfu84axVsQ1KfR8kmOUxYEzG8pIQnen+Zi/+hjUNLz2sp1Py+o5XkV2VOeP4z5WHBRnh6G1R/fesCtOU83Xvnp5X84QHM7P5Ke/X6nFAQPqoAPMyrbOJgFKuOaudnxTyYqA86LG1CRqNO677jOvB7U9gYDUAaXoAXq9f1gHSMSbYQwK2VogOGapfz27Ndj85OkUjm7FV5PWeNqV6QjrAxD18QvS+kAAxm2NeNG7qJapKBQ5Vqls9u/3RFasktQa8mTus2zjjhh+FIDj4259Bnm/edefjeZ2hpc9qEHFP+nRh6iO9ubr3W20q2dTzB0aWDC+NGuBx0vcnCPwJgKEfUD7A=
